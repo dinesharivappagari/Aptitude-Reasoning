@@ -1,1 +1,1 @@
-## easiest way to learn Aptitute
+## Simple ways to learn Aptitute & Reasoning
