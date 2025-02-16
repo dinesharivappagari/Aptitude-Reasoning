@@ -1,0 +1,1 @@
+## easiest way to learn Aptitute
